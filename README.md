@@ -1,1 +1,0 @@
-# lovelish-xd.github.io
